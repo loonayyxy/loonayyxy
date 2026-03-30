@@ -3,7 +3,7 @@
 
 sona / evie / button
 
-any pronouns 20
+she / they 21
 
 cuddles + whisps ok!
 
