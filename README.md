@@ -11,6 +11,4 @@ i hide freely >_>
 
 usually afk / off-tab, send a whisper if you wanna chat !
 
-![](https://file.garden/ZmtCUw_82Ukbgtgj/hihihihihi.png)
-
 ![](https://komarev.com/ghpvc/?username=aquaveil&color=grey&abbreviated=true&label=views)
